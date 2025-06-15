@@ -1,0 +1,1 @@
+# Esquema-conceitual-para-o-contexto-de-oficina-mecanica
